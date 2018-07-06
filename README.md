@@ -1,2 +1,2 @@
-# Ultron
-"I had strings but now I'm free."
+Hello.
+Goats are like mushrooms, if you shoot a duck, I'm scared of toasters.
